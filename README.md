@@ -3,7 +3,7 @@
 William Akitikori
 
 Adaptable Technical Support Specialist & Aspiring Engineer
-Passionate about data engineering and user‑focused innovation.
+Passionate about data and user‑focused innovation.
 
 
 
